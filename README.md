@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 Joyful Tech Explorer | BCA Student | <br>Future Innovator 🚀 <br>Passionate about coding, tech trends, and <br>innovative ideas. Explore the world of computing <br>with me
+🌟 Joyful Tech Explorer | BCA Student | <br>Future Innovator 🚀 <br>Passionate about coding, tech trends, and <br>innovative ideas. Explore the world of computing with me
 
 
 ## 🌐 Socials:
