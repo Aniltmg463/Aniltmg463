@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 Joyful Tech Explorer | BCA Student | <br>Future Innovator 🚀 <br>Passionate about coding, tech trends, and <br>innovative ideas. Explore the world of computing with me
+🚀 Aspiring Web Developer | Crafting the Future of the Web | Mastering HTML, CSS, JS & Beyond | Innovator & Lifelong Learner | Let's Build Tomorrow's Web Today! 🌐
 
 
 ## 🌐 Socials:
